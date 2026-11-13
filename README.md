@@ -57,3 +57,4 @@ Também desenvolvo projetos pessoais para explorar novas tecnologias, aprofundar
 ## 📫 Onde me encontrar
 
 - GitHub: [@vinnydarostrindad](https://github.com/vinnydarostrindad)
+- LinkedIn [Vinny Daros Trindade](www.linkedin.com/in/vinny-daros-trindade-2b4a70263)
